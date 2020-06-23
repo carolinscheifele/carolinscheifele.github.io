@@ -7,3 +7,6 @@ Quirin is a horse. More specifically, he is a sport-oriented bred horse of the b
 * height: ca. 1,75m
 * nicknames: Moppi, Dicki, Quincy, Quiri
 * best friend: Navio
+
+Quixin once said:
+> Wiiiieeehihihi
