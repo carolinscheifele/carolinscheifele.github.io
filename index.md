@@ -8,7 +8,7 @@ Quirin is a horse. More specifically, he is a sport-oriented bred horse of the b
 * nicknames: Moppi, Dicki, Quincy, Quiri
 * best friend: Navio
 
-Quixin once said:
+Quirin once said:
 > Wiiiieeehihihi
 
 <img src="https://silvena.com/uploads/gallery/59-1416-1490480773.jpg"/>
