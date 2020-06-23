@@ -10,3 +10,6 @@ Quirin is a horse. More specifically, he is a sport-oriented bred horse of the b
 
 Quixin once said:
 > Wiiiieeehihihi
+
+<img src="https://silvena.com/uploads/gallery/59-1416-1490480773.jpg"/>
+Note: This is not Quirin but this horse looks a lot like him...
